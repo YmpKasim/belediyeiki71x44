@@ -1,1 +1,0 @@
-# belediyeiki71x44
